@@ -3,11 +3,9 @@
 - 🌱 I’m currently learning Well everything mentioned above.
 - 💞️ I’m looking to collaborate on Everything related to things above.
 - 📫 How to reach me 
-- https://www.facebook.com/Shatabdaroy115/ - FaceBook/Messenger
 - Shatabda Roy#0822 - Discord Account
 - Shatabdaroy@gmail.com - Gmail
 - Shatabdaroy115@outlook.com - Outlook
-- https://www.youtube.com/channel/UCyuMnk8NIa0S8B8F0_QMgkw - Youtube Channel.
 - 
 
 <!---
